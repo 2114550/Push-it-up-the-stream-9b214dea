@@ -1,1 +1,1 @@
-duitse rijk
+frankrijk
